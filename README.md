@@ -1,1 +1,1 @@
-Hi, all this is Jess 🌸🌲✨
+Hi all, this is Jess 🌸🌲✨
